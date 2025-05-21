@@ -1,2 +1,2 @@
-# John Jay Hogh School
+# John Jay High School
 
