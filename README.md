@@ -1,2 +1,2 @@
-# jjhs
-Joh Jay High School
+# John Jay Hogh School
+
